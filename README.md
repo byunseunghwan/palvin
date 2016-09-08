@@ -7,5 +7,5 @@
 
 ![사진](http://www.theplace2.ru/archive/barbara_palvin/img/Barbara_Palvin1.jpg)
 
-[![사진](http://www.theplace2.ru/archive/barbara_palvin/img/Barbara_Palvin1.jpg)](https://www.youtube.com/watch?v=Jb2R6eb3n0g)
+[![사진](http://www.edges.co.kr/wp-content/uploads/2014/08/0e882565-5c82-4001-bc66-33ffdebda074_20140730122218038.jpg)](https://www.youtube.com/watch?v=Jb2R6eb3n0g)
 
